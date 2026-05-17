@@ -1,2 +1,1 @@
-# Idkwhatt0d0 | R Y A N
-exploiter and researcher
+# hi, my name is Idkwhatt0d0 (Ryan)
